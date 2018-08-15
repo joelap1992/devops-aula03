@@ -1,3 +1,0 @@
-# Akon
-# souza
-# mlik
